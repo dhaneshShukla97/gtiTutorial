@@ -1,1 +1,0 @@
-ruko jara krte h code
